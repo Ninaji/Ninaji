@@ -1,3 +1,5 @@
+<div align="center"><img width=50% src="https://i.imgur.com/gD6aFRi.png"><div>
+
 ## Bem-vindo ao meu perfil 🦐
 
  <div>
